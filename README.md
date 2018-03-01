@@ -1,0 +1,1 @@
+Bandymas, nekreipkit demesio.
